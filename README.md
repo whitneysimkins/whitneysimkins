@@ -1,4 +1,4 @@
-### Hi, I'm Whitney
+### ["hip","hip"] 
 
 
 
