@@ -1,6 +1,6 @@
 ### Thanks for visiting!  
 
-![GitHub Avatar of Whitney](/Desktop/Whit_Avatar.png)
+![GitHub Avatar of Whitney](/Desktop/images/Whit_Avatar.png)
 
 ---
 
