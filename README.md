@@ -2,7 +2,7 @@
 
 ---
 
-I am a solution based web developer
+Hey there, thanks for checking out my repos! 
 
 > Living in Denver, CO
 > Updating my GitHub profile.
