@@ -1,6 +1,6 @@
 ### Thanks for visiting!  
 
-![GitHub Avatar of Whitney](\Users\whitney_simkins\Desktop\Whit_Avatar.png)
+![GitHub Avatar of Whitney](https://user-images.githubusercontent.com/55456375/88007834-0db00500-cacc-11ea-875c-70ee4e548006.png)
 
 ---
 
