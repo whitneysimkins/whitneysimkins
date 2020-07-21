@@ -1,6 +1,6 @@
-### ["hip","hip"] 
+### Thanks for visiting!  
 
-
+![GitHub Avatar of Whitney](/desktop/Whit_Avatar.png)
 
 ---
 
