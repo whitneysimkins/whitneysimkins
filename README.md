@@ -1,4 +1,4 @@
-![github Avatar of Developer](https://user-images.githubusercontent.com/55456375/102271045-099ddd00-3edc-11eb-8853-7e78090f3565.png)
+
 
 ---
 
